@@ -6,7 +6,8 @@
 
 **Section 2: _First lesson with teacher_**
 
-(how we did the 自我介绍 and how she laughed along. She was interested in what we were saying and seems friendly and nice?)
+(how we did the 自我介绍 and how she laughed along. She was interested in what we were saying and seems friendly and nice? You can also add how she was "horrified" by the pets some 
+of us used to have)
 
 **Section 3: _Subsequent lessons with teacher_**
 
